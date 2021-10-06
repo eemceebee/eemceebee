@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @eemceebee
+- 👀 I’m interested in almost everything
+- 💞️ I’m looking to collaborate on everything data related
+- 📫 How to reach me ... well try to find me
